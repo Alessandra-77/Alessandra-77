@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Alessandra-77
--  I’m interested in JUNIOR H 💞️
--  ronouns: SHE/HER
-- ⚡ Fun fact I love to sleep 💞️ y me encantan los gatitos :) 
+¡Hola, bienvenido a mi pagina!
+
+💞️
+
 
 
 <!---
